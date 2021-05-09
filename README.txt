@@ -1,3 +1,6 @@
-Commit 1
+"G.231.19.0088 - Ario Wibowo-USM JAYA"
 
-Ario Wibowo
+
+Fakultas Teknologi Informasi dan Komunikasi
+
+Kota Semarang, Jawa Tengah, Indonesia
